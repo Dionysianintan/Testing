@@ -1,1 +1,1 @@
-# to connect myself with the world
+# To connect myself with the world.
